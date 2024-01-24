@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mesandyboi
-- 👀 I’m interested in learning more about Cybersecurity and its verious domains
+- 👀 I’m interested in learning more about Cybersecurity and its various domains
 - 🌱 I’m currently studying in grade 11
 - 📫 How to reach me - https://www.linkedin.com/in/sandeep-jagdish
 - 😄 Pronouns: He/Him
