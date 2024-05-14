@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mesandyboi
 - 👀 I’m interested in learning more about Cybersecurity and its various domains
-- 🌱 I’m currently studying in grade 11
+- 🌱 I’m currently studying in grade 12
 - 📫 How to reach me - https://www.linkedin.com/in/sandeep-jagdish
 - ⚡ Fun fact: I LOVE Cars and Bikes
 
